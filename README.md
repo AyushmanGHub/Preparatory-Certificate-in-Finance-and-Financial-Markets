@@ -1,1 +1,1 @@
-# Preparatory Certificate in Finance-and-Financial-Markets
+# Preparatory Certificate in Finance and Financial Markets
