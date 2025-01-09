@@ -76,5 +76,7 @@ This  Specialization**Preparatory Certificate in Finance and Financial Markets**
 - Assessing company ESG performance using public data
 - Translating ESG insights into business intelligence
 
-
+---
+### Above resources are not mine, there are owned by CFI (Corporate Finance Institute)
+### I have just done the courses and these are the highlights of the course
 
