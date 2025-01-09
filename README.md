@@ -2,6 +2,8 @@
 # Preparatory Certificate in Finance and Financial Markets Specialization
 
 This  Specialization**Preparatory Certificate in Finance and Financial Markets** by CFI (Corporate Finance Institute) provides a strong foundation in corporate finance, financial statements, risk management, ESG, and financial market fundamentals. This specialization covers a range of essential topics, preparing learners for various career paths in finance. 
+
+
 🔗 View my certification here: [Coursera Certificate](https://www.coursera.org/account/accomplishments/specialization/HU4XXTZZTVRM)
 ## It has 10 courses as shown below
 
